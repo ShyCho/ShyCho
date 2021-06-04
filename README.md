@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://www.linkedin.com/in/schoudhary101/
 - 😄 Pronouns: He/Mr.
 - ⚡ How would I describe myself: [3 words (Hardworking, Alphamale, Jackhammer)](https://youtu.be/JJzMUqXrQrE?t=21)
+- 😄 PS: I am obssesed with "The Office" US
